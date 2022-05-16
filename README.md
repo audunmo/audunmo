@@ -1,3 +1,3 @@
-Making cloud things by day 🌩
+🌩 Making cloud things by day 
 
-Hacking things at night 😈
+😈 Hacking things at night 
